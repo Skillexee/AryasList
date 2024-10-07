@@ -1,4 +1,4 @@
-La Montagne
-Meryn Trant
+Tia Felix
+Georges Richter
 Joeffrey Baratheon
 Cersei Lannister
